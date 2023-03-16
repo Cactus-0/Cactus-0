@@ -1,1 +1,1 @@
-![](https://media.discordapp.net/attachments/1073164866883424316/1085934666260959422/7810636b7da667a8.gif)
+![](https://media.discordapp.net/attachments/1037666741628698667/1083809546478305300/zov.jpg?width=1708&height=1138)
